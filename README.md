@@ -7,7 +7,7 @@ Open-license možnost:
 2. Přeprodávat/Přeposílat
 
 Za žádné škody nenesu odpovědnost.
-Je to poze pro učební účely.
+Je to pouze pro učební účely.
 Ještě bych poprosil: neničte servery lidem, kteří si to nezaslouží.
 
 
